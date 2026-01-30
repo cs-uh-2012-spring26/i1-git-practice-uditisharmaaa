@@ -7,3 +7,7 @@ I found this article very interesting, it was about TikTok facing a lawsuit over
 
 ## Proof Reading
 Article checked for typos
+
+## Article Comment
+### By: Mustafa Asif (ma8044)
+Interesting article Uditi! Cool to see big corporations facing the consequences of their exploitative behavior towards the common man. 
